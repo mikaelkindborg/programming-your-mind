@@ -1,4 +1,4 @@
-# Mindfulness for Software Developers - Programming Your Mind
+# Programming Your Mind - Mindfulness for Software Developers
 
 Your mind comes with a programming language. Learn how to reprogram yourself.
 
