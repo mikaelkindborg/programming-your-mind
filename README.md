@@ -1,4 +1,4 @@
-# Reprogramming Your Mind
+# Programming Your Mind
 
 Your mind comes with a programming language. Learn how to reprogram yourself.
 
