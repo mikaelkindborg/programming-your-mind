@@ -12,7 +12,7 @@ Say to yourself:
 - I feel the contact between my feet and the ground
 - I am aware of the stability of the ground
 - I am aware of the air that surrounds me
-- Air is flowing into and out of my body
+- Air is flowing in and out of my body
 - I am aware of my breath
 - My breath is real
 - The air is real
