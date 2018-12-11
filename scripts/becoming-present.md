@@ -1,5 +1,7 @@
 # Mindfulness script for awareness of the physical present
 
+The purpose of this script is to increase awarness of your physical existence. Focusing on the physical present is a way to exit the thought loop of negative emotions, such as worry, doubt, fear, anxiety. To exist in the present can result in feelings of calm and peace, and also happiness. To enjoy your existence without doing anything. To experience what is here and now without juding it. Without projecting any likes and dislikes into what you observe. To simply exist.
+
 Say to yourself:
 
 - I am conscious
