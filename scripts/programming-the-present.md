@@ -1,4 +1,4 @@
-# Programming the Physical Present
+# Programming the physical present
 
 This is a way to reprogram your state of mind by projecting what you want to have into the physical present. Replace "calm" with the quality you wish to have. It can be jpy, happiness, bliss, lightness. (It you wish stability, project it onto the ground rather than into the air, because the air being stable sounds a bit strange.)
 
